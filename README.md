@@ -11,6 +11,6 @@ TOTORIAL : https://youtu.be/x76k8wopH_A
 
 FOLLOW ME ON GITHUB
 
- (http://github.com/deepanik) Join HTTPS://T.MEbinbhai
+ (http://github.com/deepanik) Join HTTPS://T.ME/binbhai
 
-For more @binbhaiproject
+For more HTTPS://T.ME/binbhaiproject
