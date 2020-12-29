@@ -1,1 +1,16 @@
-# RDP.ipynb
+BINBHAI RDP TXT
+
+INCLUDE
+
+GOOGLE CONSOLE SCRIPT FOR RDP
+VNC 1GBPS FAST LINUX RDP
+FAST RDP MAKE
+OPEN SOUCE
+FUNCTIONAL 😍
+
+
+FOLLOW ME ON GITHUB
+
+ (http://github.com/deepanik)Join @binbhai
+
+For more @binbhaiproject
