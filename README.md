@@ -7,10 +7,10 @@ VNC 1GBPS FAST LINUX RDP
 FAST RDP MAKE
 OPEN SOUCE
 FUNCTIONAL 😍
-
+TOTORIAL : https://youtu.be/x76k8wopH_A
 
 FOLLOW ME ON GITHUB
 
- (http://github.com/deepanik)Join @binbhai
+ (http://github.com/deepanik) Join HTTPS://T.MEbinbhai
 
 For more @binbhaiproject
